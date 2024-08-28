@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @vidarkar2002
+- 👀 I’m interested in History, mechanical engineering, hunting and fishing
+- 🌱 I’m currently studying at NTNU Ålesund
